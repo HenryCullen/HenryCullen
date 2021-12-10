@@ -1,2 +1,0 @@
-# shroomsandyoga.github.io
- molly
